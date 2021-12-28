@@ -1,1 +1,2 @@
 Semenenya Stanislav
+BSUIR
